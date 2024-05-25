@@ -1,0 +1,4 @@
+- 👋 ola, eu sou kathielle sabadi
+- 👀 sou interessada em tudo sobre TI
+- 🌱 sou gamer
+-  EM APRENDIZADO COM GITHUB
